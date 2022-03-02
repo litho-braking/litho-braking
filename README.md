@@ -1,0 +1,2 @@
+- I'm lithobraking, litho for short
+- I like games like SCP:SL and ArmA 3. I also like coding
